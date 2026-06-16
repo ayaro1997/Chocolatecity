@@ -1,0 +1,1 @@
+Welcome to the chocolatecity hub for digital creators and entertainment lovers. Whether you are a podcaster looking to share your voice, a filmmaker showcasing your latest visual masterpiece, or a fan looking for your next obsession, our app brings audio and video together in one seamless experience
